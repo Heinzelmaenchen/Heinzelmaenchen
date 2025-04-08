@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Heinzelmaenchen
 - 👀 I’m interested in Schule
-- 🌱 I’m currently learning french
+- 🌱 I’m currently learning geography
 - 💞️ I’m looking to collaborate on baguette
 - 📫 How to reach me: just dont try it
 - 😄 Pronouns: Heinzel/männchen
