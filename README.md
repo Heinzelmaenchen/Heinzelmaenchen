@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Informatik
 - 💞️ I’m looking to collaborate on baguette
 - 📫 How to reach me: just dont try it
-- 😄 Pronouns: Heinzel/männchen
+- 😄 Pronouns: Heinzel/männchen or Ligma/Lion
 - ⚡ Fun fact: Ich bin ein heinzelmännchen
 
 <!---
